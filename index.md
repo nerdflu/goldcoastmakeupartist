@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Gold Coast Makeup Artist
 
 You can use the [editor on GitHub](https://github.com/nerdflu/goldcoastmakeupartist/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
