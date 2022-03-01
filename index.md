@@ -61,3 +61,4 @@ No need to spend hours in front of the mirror figuring out how to do your makeup
 If you are interested in booking Holli for your wedding, please call her on 0423 873 783 or email her at hollileighmakeupartist@hotmail.com
 
 If you're looking for someone who can create natural and gorgeous looks for your special day contact Holli Leigh - our most highly recommended mobile makeup artist on the Gold Coast!
+ 
