@@ -11,7 +11,7 @@ Want to look amazing on your special day? Looking for a reliable, friendly and t
 
 ## Meet Holli Leigh
 
-Makeup has always been Holli's passion and it shows in her work. Holli has been a makeup artist for over 8 years. Holli Leigh specialises in bridal makeup, formal makeup and special events. 
+Makeup has always been Holli's passion and it shows in her work. Holli has been a makeup artist for over 8 years. Holli Leigh specialises in bridal makeup, formal makeup and make up for other special events. 
 
 Holli had always been artistic from a young age, but her creative spark for makeup artistry was ignited after completing her studies in retail makeup and skin care with the Australian institute of makeup and styling (AIMS) in 2014. From there, Holli has endeavored to advance her skills and takes pride in what she does.
 
