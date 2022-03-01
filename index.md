@@ -6,7 +6,7 @@ Now to present our top recommended Gold Coast makeup artist for {{ "now" | date:
 
 ## Meet Holli Leigh
 
-Makeup has always been Holli's passion and she loves her work because of the people she meets and making them feel like their best self. Holli has been doing makeup professionally on the Gold Coast for over 8 years. Holli Leigh specialises in bridal makeup, formal makeup and special events. 
+Makeup has always been Holli's passion and she loves her work. Holli has been doing makeup professionally on the Gold Coast for over 8 years. Holli Leigh specialises in bridal makeup, formal makeup and special events. 
 
 Holli has always been artistic from a young age and her creative spark for makeup artistry was ignited after completing her cert 2 in retail makeup and skin care with the Australian institute of makeup and styling (AIMS) in 2014. From there, Holli has endeavored to advance her skills and takes pride in what she does.
 
