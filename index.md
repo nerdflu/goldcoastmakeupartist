@@ -19,13 +19,14 @@ Holli had always been artistic from a young age, but her creative spark for make
 
 There are many reasons why Holli is the perfect makeup artist for you:
 
-She will come to you, organised and on time, with everything she needs. 
-Holli has a beautiful friendly nature, she brings a fun and friendly aura that'll you'll love. 
+- She will come to you, organised and on time, with everything she needs. 
+- Holli has a beautiful friendly nature, she brings a fun and friendly personality which puts everyone at ease. 
+- Holli is a master of makeup who will ensure you look your best on your special day. 
+- She will enhance your natural beauty and fill you with confidence. 
 
-Holli is a master of makeup who will ensure you look your best on your special day. 
-She will enhance your natural beauty and fill you with confidence. 
+Holli Leigh is certainly one of the best mobile makeup artist on the Gold Coast in {{now| date:"%Y"}}. 
 
-We believe Holli Leigh is the best mobile makeup artist on the Gold Coast due to her expert skills, her passion for what she does and her friendly personality which puts everyone at ease. Don't miss out on booking this special human for your big day!
+If you would like to book her or enquire about your special day you can find her details here [Holli Leigh - Gold Coast Makeup Artist](https://www.hollyleigh.com).
 
 ## What to expect from a session with the best makeup artist on the Gold Coast?
 
