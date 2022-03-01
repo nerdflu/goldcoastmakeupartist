@@ -9,7 +9,7 @@ tags: [makeup, artist, gold coast]
 ---
 Want to look amazing on your special day? Looking for a reliable, friendly and talented makeup artist on the Gold Coast? Well, take a deep breath and relax because this special human won't only make you feel amazing and cared for, but she will help you look gorgeous on your big day and fill your cup with confidence.
 
-## Meet Holli Leigh
+## Meet our featured make up artist, Holli Leigh.
 
 Makeup has always been Holli's passion and it shows in her work. Holli has been a makeup artist for over 8 years. Holli Leigh specialises in bridal makeup, formal makeup and make up for other special events. 
 
