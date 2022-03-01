@@ -16,9 +16,9 @@ author: Madam Makeup
 navbar-links:
   About Me: "aboutme"
   Resources:
-    - Beautiful Jekyll: "https://beautifuljekyll.com"
-    - Learn markdown: "https://www.markdowntutorial.com/"
-  Author's home: "https://deanattali.com"
+    - Beautiful Makeup: "https://hollileigh.com.au"
+    - Best Makeup Artists: "https://hollileigh.com.au/"
+  Author's home: "https://goldcoastmakeupartist.com.au"
 
 # --- Logo --- #
 
@@ -80,7 +80,7 @@ share-links-active:
 
 # How to display the link to your website in the footer
 # Remove this if you don't want a link in the footer
-url-pretty: "MyWebsite.com"
+url-pretty: "GoldCoastMakeupArtist.com.au"
 
 # Excerpt word length - Truncate the excerpt of each post on the feed page to the specified number of words
 excerpt_length: 50
@@ -150,7 +150,7 @@ footer-hover-col: "#0085A1"
 # whether or not you want to allow users to opt out of tracking.
 #matomo:
 #  site_id: "9"
-#  uri: "demo.wiki.pro"
+#  uri: "https://goldcoastmakeupartist.com.au"
 #  opt-out: true
 
 # --- Comments --- #
