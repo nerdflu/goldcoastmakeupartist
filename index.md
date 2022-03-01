@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Gold Coast Makeup Artists
-subtitle: Top Mobile Makeup Artists on the Gold Coast
+subtitle: Profiling the Top Mobile Makeup Artists on the Gold Coast
 cover-img: /assets/img/path.jpg
 thumbnail-img: /assets/img/thumb.png
 share-img: /assets/img/path.jpg
