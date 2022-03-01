@@ -2,7 +2,7 @@
 
 Want to look amazing on your special day? Looking for a reliable, friendly and talented makeup artist on the Gold Coast? Well, take a deep breath and relax because this special human won't only make you feel amazing and cared for, but she will help you look gorgeous on your big day and fill your cup with confidence.
 
-Our recommended Gold Coast Makeup Artist for {{ "now" | date:"%Y" }}:
+Now to present our top recommended Gold Coast makeup artist for {{ "now" | date:"%Y" }}:
 
 ## Meet Holli Leigh
 
