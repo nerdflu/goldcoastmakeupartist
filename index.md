@@ -8,7 +8,7 @@ Makeup has always been Holli's passion and she loves her work because of the peo
 
 Holli has always been artistic from a young age and her creative spark for makeup artistry was ignited after completing her cert 2 in retail makeup and skin care with the Australian institute of makeup and styling (AIMS) in 2014. From there, Holli has endeavored to advance her skills and takes pride in what she does.
 
-## Why choose Holli? Why is she such a good choice
+## Why Holli? What makes Holli such a good makeup artist?
 
 There are many reasons why Holli is the perfect makeup artist for you:
 
