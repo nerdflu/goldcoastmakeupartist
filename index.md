@@ -2,7 +2,7 @@
 layout: post
 title: Top Gold Coast Makeup Artists 2022
 subtitle: Profiling the Top Mobile Makeup Artists on the Gold Coast
-cover-img: /assets/img/beach-88086-ws.jpg
+cover-img: /assets/img/gold-coast-makeup-artist.jpg
 thumbnail-img: /assets/img/thumb.png
 share-img: /assets/img/gold-coast-makeup-artist.jpg
 tags: [makeup, artist, gold coast]
