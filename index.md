@@ -67,3 +67,18 @@ No need to spend hours in front of the mirror figuring out how to do your makeup
 If you are interested in booking Holli for your wedding, please call her on 0423 873 783 or email her at hollileighmakeupartist@hotmail.com
 
 If you're looking for someone who can create natural and gorgeous looks for your special day contact Holli Leigh - our most highly recommended mobile makeup artist on the Gold Coast!
+
+
+##Makeup Artists Gold Coast
+
+###Makeup Artists Broadbeach
+
+Holli Leigh is a passionate, talented and artistic make up artist who services all of Gold Coast and will come to you in Broadbeach. If you're looking for a makeup artist in Broadbeach, contact Holli Leigh now!
+
+###Makeup Artist Surfers Paradise
+
+There are many makeup artists in Surfers Paradise but Holli Leigh is our most recommended. She loves to make people look amazing and feel their best. She can bring her makeup to your hotel, home, office or event and she can do bookings on short notice. Book Holli Leigh now!
+
+### Makeup Artist Coolangatta
+
+Holli Leigh is a passionate and talented make-up artist who services all of Gold Coast and will come to you in Coolangatta. Holli offers a variety of makeup applications for different occasions, such as weddings, formals, graduations or just about any occasion! If you're looking for a professional make up artist near Coolangatta then contact Holli Leigh now!
