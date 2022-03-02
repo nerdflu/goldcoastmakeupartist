@@ -17,6 +17,8 @@ Makeup has always been Holli's passion and it shows in her work. Holli has been 
 
 Holli has always been artistic from a very young age, but her creative spark for makeup artistry was ignited after completing her studies in retail makeup and skin care with the Australian institute of makeup and styling (AIMS) in 2014. From there, Holli has endeavored to advance her skills and takes pride in what she does.
 
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
+
 ## What makes Holli an excellent makeup artist?
 
 There are many reasons why Holli is the perfect makeup artist for you:
@@ -30,6 +32,8 @@ Holli Leigh is certainly one of the best mobile makeup artist on the Gold Coast 
 
 If you would like to book her or enquire about your special day you can find her details here [Holli Leigh - Gold Coast Makeup Artist](https://www.hollyleigh.com).
 
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
+
 ## What to expect from a session with the best makeup artist on the Gold Coast?
 
 Holli will stay in touch with you through-out the process. She may ask if you have pictures or points of inspiration, or questions about the colours, theme or tone of the event. 
@@ -38,9 +42,13 @@ Holli is a very friendly person with a bubbly personality. She will make sure yo
 
 It's ideal to have a bright space, with a comfortable chair in a set aside place that isn't too chaotic. Holli bring's her own premium makeup products and cleans her brushes between sessions. The best way to prepare for yourself is to have dry hair, a freshly-washed face, toned and moisturized. Exfoliate any dry areas the night before. Leave your face bare and makeup-free.
 
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
+
 ## Where can Holli travel to? 
 
 Holli is a mobile makeup artist who will come to you. If you are located in Brisbane, anywhere on the Gold Coast, including Surfers Paradise and Broadbeach or even down to Coolangatta, Tweed Heads or as far as Byron Bay Holli will come to you. 
+
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
 
 ## Why do Gold Coast Brides want Holli to do their makeup?
 
@@ -52,9 +60,13 @@ Holli Leigh has been doing makeup for more than 8 years and has done makeup for 
 
 Holli doesn't only take pride in her work, she takes pride in making each client feel beautiful on their big day. Not only does she provide excellent service with her skillset, but she also provides great customer service by being friendly, reliable and trustworthy.
 
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
+
 ## How many hours do you recommend for bridal makeup?
 
 For Gold Coast Brides, Holli recommends that the bride set aside at least an hour for makeup. If you are booking your makeup artist for your bridesmaids and mothers, Holli suggests setting aside 30 minutes per additional person to make things go more smoothly. It also helps if there is a prediscussed aesthetic so that everyone's look will match the wedding theme and any time spent on it won't be wasted!
+
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
 
 ## School Formal Makeup Gold Coast
 
@@ -64,11 +76,15 @@ Whether you're going for an understated look or something more dramatic, Holli w
 
 No need to spend hours in front of the mirror figuring out how to do your makeup - Holli does all the hard work for you!How to book a mobile makeup session with Holli Leigh
 
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
+
 ## Holli Leigh is a professional mobile makeup artist who specializes in bridal and formal makeup.
 
 If you are interested in booking Holli for your wedding, please call her on 0423 873 783 or email her at hollileighmakeupartist@hotmail.com
 
 If you're looking for someone who can create natural and gorgeous looks for your special day contact Holli Leigh - our most highly recommended mobile makeup artist on the Gold Coast!
+
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
 
 
 ## Makeup Artists Gold Coast
