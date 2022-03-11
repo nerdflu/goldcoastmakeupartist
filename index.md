@@ -30,7 +30,7 @@ There are many reasons why Holli is the perfect makeup artist for you:
 
 Holli Leigh is certainly one of the best mobile makeup artist on the Gold Coast in {{now| date:"%Y"}}. 
 
-If you would like to book her or enquire about your special day you can find her details here [Holli Leigh - Gold Coast Makeup Artist](https://www.hollyleigh.com).
+If you would like to book her or enquire about your special day you can find her details here [Holli Leigh - Gold Coast Makeup Artist](https://www.hollileigh.com.au).
 
 ![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png)
 
